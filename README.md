@@ -11,4 +11,4 @@
 - 💬 Ask me about manga and anime maybe?? I don't know.
 - 📫 How to reach me: [@AshMorker](https://twitter.com/ashmorker.com)
 - 😄 Pronouns: The
-- ⚡ Fun fact: If you think about it really hard, then you will come to the realisation that we have already distroyed the Earth.
+- ⚡ Fun fact: Fun facts are fun.
