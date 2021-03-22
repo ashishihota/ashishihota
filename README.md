@@ -11,5 +11,5 @@
 - 🤔 I’m looking for help with **Everything**
 - 💬 Ask me about manga and anime maybe?? I don't know.
 - 📫 How to reach me: [@AshMorker](https://twitter.com/ashmorker.com)
-- 😄 Pronouns: The
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Fun facts are fun.
