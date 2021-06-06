@@ -1,4 +1,4 @@
-<h2 align="center"> Hello there (Especially to daddy's little princess) 👋 </h2>
+<h2 align="center"> It’s dangerous to go alone, take this! 💻 </h2>
 <h2 align="center">I am Ashish, your average human. </h2>
 <p align="center"> 
   <a href="https://averagecoder.me">Here is my website</a>
