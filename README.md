@@ -1,5 +1,6 @@
 <h2 align="center"> It’s dangerous to go alone, take this! 💻 </h2>
 <h2 align="center">I am Ashish, your average human. </h2>
+<h2 align="center">I can reverse a LinkedList very well, so contact me if you have a job for me.</h2>
 <p align="center"> 
   <a href="https://averagecoder.me">Here is my website</a>
   <br>
